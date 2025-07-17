@@ -44,4 +44,6 @@ Tools Used: Power BI (Charts, Cards, Conditional Formatting, Custom Formatting)
 
 ## Business Insights (Summary)
 1. Management should encourage staff to reveal their gender for proper accountability considering the fact that the media already holds a notion that the organization is gender biased.
-2. 
+2. Lagos Region poor performance may be due to living Condition in Lagos that is the management can provide a good welfare package for their ALgos employee to increasee performance of the staff and yield more profit
+3. Palmora should increase the salary of their staffs in order to meet the generally accepted standard.
+4.  
